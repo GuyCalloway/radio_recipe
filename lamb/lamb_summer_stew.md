@@ -3,6 +3,9 @@
 * Loads of garlic
 * rosemary
 * mint still on stalk
+* flagolet beans
+* lemon zest, salt pepper
+* spring vegetables
 
 ## Instructions
 * Seal off the lamb in oil with herbs garlic in there
